@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @kranthi101
 - 👀 I’m interested in learning 
-- 🌱 I’m currently learning diploma 
+- 🌱 I’m currently learning Projects 
 - 💞️ I’m looking to collaborate on telegram 
 - 📫 How to reach me come to warangal
 
